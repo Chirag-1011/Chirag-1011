@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **devmurarichirag007@gmail.com**
 
- <a href="https://drive.google.com/file/d/101EZo1N6ew5ZTc5jJA_9P-KIi0SB6S6C/view?usp=sharing](https://drive.google.com/file/d/101EZo1N6ew5ZTc5jJA_9P-KIi0SB6S6C/view?usp=sharing">RESUME</a>  - 📄 Know about my experiences [https://drive.google.com/file/d/101EZo1N6ew5ZTc5jJA_9P-KIi0SB6S6C/view?usp=sharing](https://drive.google.com/file/d/101EZo1N6ew5ZTc5jJA_9P-KIi0SB6S6C/view?usp=sharing)
+- 📄<a href="https://drive.google.com/file/d/101EZo1N6ew5ZTc5jJA_9P-KIi0SB6S6C/view?usp=sharing](https://drive.google.com/file/d/101EZo1N6ew5ZTc5jJA_9P-KIi0SB6S6C/view?usp=sharing">RESUME</a>  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
